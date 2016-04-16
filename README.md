@@ -10,3 +10,4 @@ my computer
 
 my nokia
 
+study
